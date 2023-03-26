@@ -1,1 +1,0 @@
-# inspiredmind.github.io
